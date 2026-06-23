@@ -39,4 +39,4 @@
 ---
 
 > ✨ *"You are magic"* - Conectemos para crear soluciones digitales increíbles. 
-> 📩 Puedes contactar conmigo en **paqueco12@gmail.com** o echarle un vistazo a **[mi porfolio en Canva haciendo clic aquí](https://www.canva.com/design/DAF3aqwaWqA/LItz-3ISBTp9zJPMRYO-6Q/view?utm_content=DAF3aqwaWqA&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h9725530a8e)**.
+> 📩 Puedes contactar conmigo en **paciaqc@yelose.tech** o echarle un vistazo a **[mi porfolio en Canva haciendo clic aquí](https://www.canva.com/design/DAF3aqwaWqA/LItz-3ISBTp9zJPMRYO-6Q/view?utm_content=DAF3aqwaWqA&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h9725530a8e)**.
